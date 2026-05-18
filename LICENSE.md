@@ -1,4 +1,4 @@
-# 
+# Caché Vegas Pro pour PC scripts est le meilleur Vegas Pro pour PC scripts avec bibliothèque d'effets et traitement par lots. Sécurisé, fiable et optimisé pour des performances
 
 
 
